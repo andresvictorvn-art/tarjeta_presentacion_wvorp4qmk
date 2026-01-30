@@ -1,1 +1,0 @@
-# tarjeta_presentacion_wvorp4qmk
